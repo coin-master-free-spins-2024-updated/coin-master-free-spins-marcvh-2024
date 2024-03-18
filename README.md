@@ -2,9 +2,9 @@
 
 23 second - Get your coin master free spins Today - Coin Master Free Spins Coins Links March 2024 - Click the link and claim yours now
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://sur-prize.online/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://github.com/lejooam/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://sur-prize.online/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://github.com/lejooam/Coin)
  
 
 In the vast realm of mobile gaming, few titles have captured the hearts and minds of players quite like Coin Master. With its addictive blend of strategy, luck, and social interaction, this game has become a global sensation, amassing millions of loyal players worldwide. At the heart of the Coin Master experience lies the coveted currency: spins. These spins serve as the lifeline for players, allowing them to raid, attack, and build their way to victory. However, obtaining spins can sometimes be a challenge, leading many players to seek out free spin opportunities.
